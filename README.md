@@ -1,4 +1,4 @@
-Hi 👋 My name is Kareem Elmadi ==============================  Software Developer ------------------  Dedicated and eager to work recently Graduated looking for a place to start a career what I lack in experience I will make up in my hard work and deduction to better myself and the company I represent. As well as always improving my knowledge through self-study.  * 🌍  I'm based in Dallas TX * ✉️  You can contact me at [kareemelmadi@gmail.com](mailto:kareemelmadi@gmail.com) * 🧠  I'm learning WEB3
+Hi 👋 My name is Kareem Elmadi ==============================  Software Developer ------------------  Dedicated and eager to work recently Graduated looking for a place to start a career what I lack in experience I will make up in my hard work and deduction to better myself and the company I represent. As well as always improving my knowledge through self-study.  * 🌍  I'm based in Dallas TX * ✉️  You can contact me at [kareemelmadi@gmail.com](mailto:kareemelmadi@gmail.com) * 🧠  I'm learning WEB3
 
 ### Skills
 
